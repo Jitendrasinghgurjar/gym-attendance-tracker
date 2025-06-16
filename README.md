@@ -37,4 +37,4 @@ I'm Jitendra Singh Gurjar — passionate about building useful, clean UI-based w
 This is just the beginning 🚀
 
 Connect with me on [LinkedIn](https://linkedin.com/in/your-link)  
-Mail: jitendrasg.bcaai2022@iujaipur.edu.in
+Mail: 23jitugurjar@gmail.com
